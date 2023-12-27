@@ -2,6 +2,12 @@
 
 ### 2023
 
+Dec 26, 2023 
+
+Epictetus - 
+how long will you wait before you demand the very best from yourself?
+
+
 January 1, 2023 (Sunday)
 "Life is a daring adventure or it is nothing at all."
 --Helen Keller
