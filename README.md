@@ -1,5 +1,14 @@
 # Quotes
 
+
+### 2024
+
+jan 2, 2024 
+
+Don’t worry about failures, worry about the chances you miss when you don’t even try.
+
+
+
 ### 2023
 
 Dec 26, 2023 
